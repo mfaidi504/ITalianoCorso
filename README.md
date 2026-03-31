@@ -1,5 +1,11 @@
 # ITalianoCorso
-
+rilevare
+discutere
+almeno
+preparare critico
+qualità dei dati
+non abbiamo voglia di Dio
+Criteri
 
 # Italian Learning Notes & Vocabulary
 
