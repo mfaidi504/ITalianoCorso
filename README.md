@@ -11,6 +11,17 @@ Criteri
 
 ---
 
+
+discuss
+discussed
+collegamento
+ collegato
+A PROPOSITO
+IN BREVE
+
+
+
+
 # 🏢 LAVORO & AZIENDA
 
 **Azienda** = company  
